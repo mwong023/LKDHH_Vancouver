@@ -19,4 +19,4 @@ Vancouver Low Key Data Happy Hour
 
 🌐 Why Wait? If you're ready to step into a world where data professionals meet in a laid-back setting, where connections are made over glasses clinking and stories shared, then the Low Key Data Happy Hour is your destination. Come, be part of something refreshingly different!
 
-🥂 Your Next Opportunity Awaits at Low Key Data Happy Hour. See You There!
+🥂 Your next opportunity at Low Key Data Happy Hour. See you there!
