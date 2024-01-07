@@ -1,5 +1,14 @@
-# LKDHH_Vancouver
-Vancouver Low Key Data Happy Hour
+# Vancouver Low Key Data Happy Hour
+
+## Events
+
+LKDHH_Vancouver #6 - 2023-01-18 - 5:30pm
+
+## Sign Up
+
+Add your email [here](https://forms.gle/iASXyN8QAUKa5vca7) to be added to the email list. You only have to do it once.  You will receive an invite within the following 72 hours or so.  There is no automation so it's whenever I check the new signup list. 
+
+## What is Low Key Data Happy Hour?
 
 🌟 Join the Buzz at Vancouver's Low Key Data Happy Hour! 🌟
 
