@@ -3,6 +3,7 @@
 ## Events
 
 LKDHH_Vancouver #7 - 2024-05-01 - 5:30pm
+
 LKDHH_Vancouver #6 - 2024-01-18 - 5:30pm
 
 ## Sign Up
