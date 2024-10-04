@@ -2,7 +2,7 @@
 
 ## Events
 
-LKDHH_Vancouver #9 - 2024-10-24 - 5:30pm
+LKDHH_Vancouver #9 - 2024-10-22 - 5:30pm
 
 LKDHH_Vancouver #8 - 2024-09-19 - 5:30pm
 
