@@ -2,7 +2,7 @@
 
 ## Events
 
-LKDHH_Vancouver #9 - 2024-10-22 - 5:30pm
+LKDHH_Vancouver #9 - 2024-10-22 - 5:30pm - https://lu.ma/cwn6wzg2
 
 LKDHH_Vancouver #8 - 2024-09-19 - 5:30pm
 
@@ -12,7 +12,7 @@ LKDHH_Vancouver #6 - 2024-01-18 - 5:30pm
 
 ## Sign Up
 
-Add your email [here](https://forms.gle/iASXyN8QAUKa5vca7) to be added to the email list. You only have to do it once.  You will receive an invite within the following 72 hours or so.  There is no automation so it's whenever I check the new signup list. 
+Signups have moved to the individual Luma events for now.  Find the links above.  Working out the kinks in the process.
 
 ## What is Low Key Data Happy Hour?
 
