@@ -1,5 +1,7 @@
 # Vancouver Low Key Data Happy Hour
 
+All future events are going to be hosted on Luma.  You can search for them there.  If the event has passed and there is no upcoming one set up, just sign up for the latest one that has past, and the invite list will get forwarded onto the next one. 
+
 ## Events
 
 LKDHH_Vancouver #9 - 2024-10-22 - 5:30pm - https://lu.ma/cwn6wzg2
